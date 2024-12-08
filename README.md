@@ -1,1 +1,1 @@
-# Ch-th-ch-nh-v-i-Attention-Mechanism-v-i-CNN-v-RNN-
+Nhóm 16 - CNTT12.10.2
